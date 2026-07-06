@@ -1,4 +1,4 @@
-# 
+# Instantâneo low cap gem sniper bot fluxo de trabalho para Mac OS | Top low cap gem sniper bot fluxo de trabalho para PC Windows. Com varredura de pools de liquidez e análise de dados — otimizado para máximo desempeño en cada plataforma.
 
 
 
